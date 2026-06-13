@@ -24,7 +24,7 @@
 - Machine Learning
 
 ## 📍 Location
-Nashik, Maharashtra
+Pune, Maharashtra
 
 ## 📫 Connect With Me
 - LinkedIn: linkedin.com/in/nikheelpatil
